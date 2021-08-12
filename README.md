@@ -1,0 +1,2 @@
+# project-work
+the project work was " A STUDY TO ASSESS THE MENTAL HEALTH OF COMMUNITY OF INTEGRAL UNIVERSITY DURING COVID-19 " - the project consisted survey regarding the experience of individuals during covid-19 restrictions and curfew , the target population was the staff and students of bsc ,integral university. The survey aim was to gather the information regarding mental health status of individuals and to study the various observations from the analysed surveyed data.
